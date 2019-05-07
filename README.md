@@ -21,6 +21,7 @@ Lista desses retardados:
 ![](https://i.imgur.com/VTA4Eoi.jpg)
 ![](https://i.imgur.com/2pZjLSm.jpg)
 ![](https://i.imgur.com/iiZL792.jpg)
+![Adolfinho va tomar no cuzinho](https://i.imgur.com/kvRWbGM.jpg)
 
 ## Empresas que PRECISAM SE FODER
 
