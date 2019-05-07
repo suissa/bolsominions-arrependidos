@@ -1,6 +1,6 @@
 # Bolsominions Arrependidos
 
-- [MEMES](https://github.com/suissa/bolsominions-arrependidos/edit/master/memes.md)
+- [MEMES](https://github.com/suissa/bolsominions-arrependidos/blob/master/memes.md)
 
 ## #euAVisei
 
