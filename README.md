@@ -22,6 +22,11 @@ Lista desses retardados:
 ![](https://i.imgur.com/2pZjLSm.jpg)
 ![](https://i.imgur.com/iiZL792.jpg)
 
+## Empresas que PRECISAM SE FODER
+
+![](https://i.imgur.com/QGnjIhg.jpg)
+![](https://i.imgur.com/BmiVpaz.jpg)
+
 ## Contribuindo
 
 > Por favor mander PR com link de imagens que comprovem essa burrice que fizeram anteriormente!
