@@ -16,10 +16,11 @@ Lista desses retardados:
 ![](https://i.imgur.com/NQqSL6M.jpg)
 ![](https://i.imgur.com/Wqi2B5d.jpg)
 ![](https://i.imgur.com/NCOfIcA.jpg)
-![]()
-![]()
-![]()
-![]()
+![](https://i.imgur.com/gHMB5as.jpg)
+![](https://i.imgur.com/oGf9ZTu.jpg)
+![](https://i.imgur.com/VTA4Eoi.jpg)
+![](https://i.imgur.com/2pZjLSm.jpg)
+![](https://i.imgur.com/iiZL792.jpg)
 
 ## Contribuindo
 
