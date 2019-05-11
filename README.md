@@ -5,8 +5,8 @@
 ## #euAVisei
 
 ## Fotos de Perfil
-Lista desses retardados:
 
+![](https://i.imgur.com/63QeYEk.jpg)
 ![](https://i.imgur.com/wplEvA6.png)
 ![](https://i.imgur.com/HiNx87J.png)
 ![](https://i.imgur.com/ORKbIC3.png)
