@@ -6,6 +6,9 @@
 
 ## Fotos de Perfil
 
+> Esse não teve nem vergonha na cara!!!
+![Esse não teve nem vergonha na cara!!!](https://i.imgur.com/W8Z9KSp.jpg)
+
 ![](https://i.imgur.com/63QeYEk.jpg)
 ![](https://i.imgur.com/wplEvA6.png)
 ![](https://i.imgur.com/HiNx87J.png)
